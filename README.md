@@ -1,1 +1,0 @@
-# Challenge1-Equipo3
